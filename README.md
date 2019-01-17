@@ -6,7 +6,9 @@ JASON MAGLANGIT
 jasonmaglangit@gmail.com
 
 Phone: +639189858253
+
 Linkedin: https://www.linkedin.com/in/jason-maglangit-5913b043/
+
 Skype: jason.maglangit
 
 PROFESSIONAL EXPERIENCE
